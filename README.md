@@ -10,4 +10,4 @@
 
 Ссылка  на видео с русскими/английский  субтитрами  https://www.youtube.com/watch?v=ci1DPS6GFlA&t=4s
 
-Конспект https://yadi.sk/i/NJe6NV61XtgSbA
+
