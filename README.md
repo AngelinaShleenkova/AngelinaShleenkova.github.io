@@ -13,3 +13,5 @@
 Ссылка на задания 1.1. и 1.2. https://yadi.sk/i/pk6Df4-xkoo4jQ
 
 Ссылка на задания 2.1. и 2.2. https://yadi.sk/i/q-4C0eAZWK_7wg
+
+Ссылка на задание 3 https://yadi.sk/i/EQSwps8hzUfg4w
