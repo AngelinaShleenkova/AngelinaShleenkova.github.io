@@ -11,3 +11,5 @@
 Ссылка  на видео с русскими/английский  субтитрами  https://www.youtube.com/watch?v=ci1DPS6GFlA&t=4s
 
 Ссылка на задания 1.1. и 1.2. https://yadi.sk/i/pk6Df4-xkoo4jQ
+
+Ссылка на задания 2.1. и 2.2. https://yadi.sk/i/q-4C0eAZWK_7wg
