@@ -10,8 +10,11 @@
 
 Ссылка  на видео с русскими/английский  субтитрами  https://www.youtube.com/watch?v=ci1DPS6GFlA&t=4s
 
-Ссылка на задания 1.1. и 1.2. https://yadi.sk/i/pk6Df4-xkoo4jQ
+Ссылка на задания 1.1. и 1.2.  https://yadi.sk/i/czIIcdYOS73kfw
 
-Ссылка на задания 2.1. и 2.2. https://yadi.sk/i/q-4C0eAZWK_7wg
+Ссылка на задания 2.1. и 2.2. https://yadi.sk/i/C-1p29seqa5PQQ 
 
-Ссылка на задание 3 https://yadi.sk/i/EQSwps8hzUfg4w
+Ссылка на задание 3  https://yadi.sk/i/6hi1dzHVJ-PMe
+
+Сылка на задания 4.1. и 4.2. https://yadi.sk/i/Dfh2hx9lhxQDYA
+
