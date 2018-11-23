@@ -18,3 +18,5 @@
 
 Сылка на задания 4.1. и 4.2. https://yadi.sk/i/Dfh2hx9lhxQDYA
 
+Ссылка на задание 5.1.  https://yadi.sk/i/x7QBA61RLCRNJg
+Ссылка на задание 5.2. https://yadi.sk/i/z3ObuYm5KcKwDA
