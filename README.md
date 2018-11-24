@@ -24,3 +24,7 @@
 Ссылка на задание 6 https://yadi.sk/i/D6SyYj-QFMPOhw
 
 Ссылка на задание 7 https://yadi.sk/i/i4T_Rei9Xm464w
+
+Ссылка на задание 9.1. https://yadi.sk/i/cFk8rGUMqAwR4Q
+Ссылка на задание 9.2. https://yadi.sk/i/cFY3Ekk7q5v9WA
+
