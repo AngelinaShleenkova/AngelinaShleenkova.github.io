@@ -22,3 +22,5 @@
 Ссылка на задание 5.2. https://yadi.sk/i/z3ObuYm5KcKwDA
 
 Ссылка на задание 6 https://yadi.sk/i/D6SyYj-QFMPOhw
+
+Ссылка на задание 7 https://yadi.sk/i/i4T_Rei9Xm464w
