@@ -28,3 +28,6 @@
 Ссылка на задание 9.1. https://yadi.sk/i/cFk8rGUMqAwR4Q
 Ссылка на задание 9.2. https://yadi.sk/i/cFY3Ekk7q5v9WA
 
+Ссылка на задание 11.1. https://yadi.sk/i/HNMsLf457VWoJQ
+Ссылка на задание 11.2. https://yadi.sk/i/NzZg8odr8JECaw
+
