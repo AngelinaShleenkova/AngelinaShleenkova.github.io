@@ -36,3 +36,5 @@
 Ссылка на задание В.5.2.  https://yadi.sk/i/6zLLFodijstHGA
 
 Ссылка на задание В.6.1. https://yadi.sk/i/J8b1At_b8co0Jg
+
+Ссылка на задание В.8.1. https://yadi.sk/i/VGrEZ-vnJbysVQ
