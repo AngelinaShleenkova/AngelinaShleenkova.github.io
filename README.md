@@ -40,3 +40,5 @@
 Ссылка на задание В.8.1. https://yadi.sk/i/VGrEZ-vnJbysVQ
 
 Ссылка на задание В.9.2. https://yadi.sk/i/x41uKP0iTcfp9w
+
+Ссылка на задание В.10.2 https://yadi.sk/i/dyKfKSW2TQk4SQ
