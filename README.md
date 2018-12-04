@@ -33,4 +33,4 @@
 
 Ссылка на задание В.4.1. https://yadi.sk/i/UqQCyzhY6QtxCQ
 
-Ссылка на задание В.5.2. https://yadi.sk/i/kp-poW_GgOp7EQ
+Ссылка на задание В.5.2. 
