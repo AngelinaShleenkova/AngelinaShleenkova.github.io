@@ -33,4 +33,6 @@
 
 Ссылка на задание В.4.1. https://yadi.sk/i/UqQCyzhY6QtxCQ
 
-Ссылка на задание В.5.2. 
+Ссылка на задание В.5.2.  https://yadi.sk/i/6zLLFodijstHGA
+
+Ссылка на задание В.6.1. https://yadi.sk/i/J8b1At_b8co0Jg
